@@ -1,5 +1,4 @@
 
-halo aku sedang belajar github  
-sdshadas  
-saya  
+halo aku sedang belajar github
+sdshadas
 
